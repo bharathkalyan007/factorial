@@ -1,7 +1,0 @@
-asgdgsakjguGHG'LNGH[OGUH QE UQERY 
-QWK B	RBIY IQEREYHQRY QEY
-ER JKNQERR UT475734681346P	346\
-lehgjqerjyqj yq  u
-k;jdagugUGHRG
-ADSKGJHsiuhgjG
-sdgkuUG
